@@ -1,0 +1,1 @@
+Before I get into this topic, there’s something I want to share with you first. Next time before you try to tell the truth, don’t just go out telling everyone in the public. It doesn’t work out like that. Since the human nature is that nobody likes to hear the truth. Especially they don’t want to hear it from you.
